@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **Machine Learning**
 
-- 📫 How to reach me **swarnautsha2000@gmail.com**
+- 📫 How to reach me **swarnacse36@gmail.com**
 
 
 
